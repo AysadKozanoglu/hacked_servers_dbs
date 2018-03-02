@@ -5,3 +5,6 @@ hacking works in the fucking world of Dark deep Onion W0rld. what i found i put 
 Weeping Angel was the most interesting thing what i see. 
 
 
+Unkown helpers
+APT 28 Sofacy-Gruppe Fancy Bear STRONTIUM Sednit Zarenteam Pawn Storm
+
